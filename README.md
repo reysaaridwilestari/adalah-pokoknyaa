@@ -1,0 +1,2 @@
+# adalah-pokoknyaa
+assalamualaikum
